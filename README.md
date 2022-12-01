@@ -1,1 +1,0 @@
-# Azienda_Join_StoredP
